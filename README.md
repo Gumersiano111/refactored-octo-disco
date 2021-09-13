@@ -1,0 +1,2 @@
+Sandwich Monte Cristo 
+Un sandwich de jamón y queso (pueden variar los ingredientes a su preferencia), que se le agrega yema y clara de huevo para freirse ya sea con mantequilla o con aceite de oliva, una vez que el huevo esté cocido y el queso gratinado, se pone en un plato y se corta diagonalmente 
